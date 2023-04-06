@@ -1,1 +1,2 @@
 James Adelhelm
+adelhelj@oregonstate.edu
